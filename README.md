@@ -1,25 +1,33 @@
 # 🎮 Elevate Your Gaming Experience with Ray Cheat Hack for Escape from Tarkov 🎮
+
 <p align="center">
   <img src="image/bosmudasky-1.jpg" alt="Ray Cheat Hack">
 </p>
-Welcome to [Bosmudasky.com](https://bosmudasky.com), where we provide tools and resources to help you get the most out of your gaming experience. One of our standout offerings is the **Ray Cheat Hack** for **Escape from Tarkov (EFT)**.
+
+Welcome to [Bosmudasky.com](https://bosmudasky.com) where we provide tools and resources to help you get the most out of your gaming experience. One of our standout offerings is the **Ray Cheat Hack** for **Escape from Tarkov (EFT)**.
 
 ## About Escape from Tarkov
+
 <p align="center">
   <img src="image/bosmudasky-2.jpg" alt="Ray Cheat Hack">
 </p>
+
 Escape from Tarkov is a hardcore and realistic online first-person action RPG/Simulator with MMO features and a story-driven walkthrough. With its intense gameplay and tactical depth, EFT has captivated players worldwide. Every decision counts, every mistake can be fatal, and every raid brings a new challenge.
 
 ## 🌟 Why Choose Ray Cheat Hack? 🌟
+
 <p align="center">
   <img src="image/bosmudasky-3.jpg" alt="Ray Cheat Hack">
 </p>
+
 The Ray hack is not just any tool; it's a comprehensive suite of features tailored to transform your gaming experience. Whether you're looking to improve your strategy, increase your accuracy, or simply enjoy the game more, the Ray hack has something for everyone.
 
 ### 🔍 Unmatched Features
+
 <p align="center">
   <img src="image/bosmudasky-4.jpg" alt="Ray Cheat Hack">
 </p>
+
 #### Player ESP Options
 - **Full Coverage:** Detect Players, Scavs, and Player Scav.
 - **Detailed Information:** Display Name, Distance, Box, Skeleton, Snap Lines, and Health.
@@ -54,7 +62,7 @@ The Ray hack offers flexibility with its two distinct modes:
 
 ## 🚀 Getting Started
 
-1. **Visit Us:** Head over to [Bosmudasky.com](https://bosmudasky.com) to explore our comprehensive range of game hacks.
+1. **Visit Us:** Head over to Bosmudasky.com to explore our comprehensive range of game hacks.
 2. **Choose Your Hack:** Find the Ray Cheat Hack for Escape from Tarkov and add it to your cart.
 3. **Secure Payment:** Complete your purchase using a variety of payment methods.
 4. **Instant Access:** Receive your hack instantly and start dominating your raids.
